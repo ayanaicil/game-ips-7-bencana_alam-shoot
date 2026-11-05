@@ -1,0 +1,1 @@
+# game-ips-7-bencana_alam-shoot
